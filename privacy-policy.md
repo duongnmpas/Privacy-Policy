@@ -1,5 +1,4 @@
 GOOGLE PLAY PRIVACY POLICY FOR POWER APP STUDIO
-
 Modified on October 21 , 2015
 
 POWER APP STUDIO ("us" or "we") has created this Policy to explain our privacy practices so you will understand what information about you is collected, used and disclosed.
